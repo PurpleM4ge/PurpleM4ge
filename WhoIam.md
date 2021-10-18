@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PurpleM4ge
+- 👋 I’m @PurpleM4ge the fool 
 - 👀 I’m interested in expand my contacts and my knowledge
 - 🌱 I'm currently learning programs like python and some Artificial Intelligence (A.I)
 - 💞️ I want to protect those who deserve it and punish those who do wrong...
